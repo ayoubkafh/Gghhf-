@@ -1,1 +1,0 @@
-# Getscreen-Window-10
